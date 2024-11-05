@@ -1,4 +1,5 @@
-# VER-el-video-de-wanda-nara-y-l-gante-de-que-se-trata-son-pareja-2024
+# ++VER Se filtró el íntimo video de Wanda Nara y L-Gante juntos en una fiesta que confirma su romance
+
 
 la historia entre Wanda Nara y L-Gante parece que no tiene fin y el triángulo amoroso que forman con Mauro Icardi vuelve a tener otro capítulo más. Hace unas semanas, la conductora de Bake Off Famosos se había reconciliado con su marido y se enojó con el cantante de RKT por hablar de su supuesta relación en el living de Susana Giménez. Pero al pasar los días, volvieron a tener buena onda y se filtraron imágenes de ellos muy juntos en una fiesta.
 
