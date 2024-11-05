@@ -3,6 +3,15 @@
 
 Luego de rumores y de varias idas y vuelta, L-Gante brindó entrevistas este lunes en los que habló largo y tendido de Wanda Nara, y luego ambos realizaron un vivo de Instagram para confirmar su noviazgo.
 
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+
 La mediática primero sorprendió al acompañar al cantante de cumbia a la nota que realizó con Jorge Rial en C5N. Fue el propio conductor el que advirtió que ella se encontraba detrás de cámara durante la entrevista, aunque no aceptó salir en vivo. 
 
 Luego, ambos protagonizaron un vivo de Instagram donde se mostraron a los besos mientras interactuaban con sus miles de fieles seguidores. 
